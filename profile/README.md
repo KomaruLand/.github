@@ -1,6 +1,3 @@
 ## мряу
 его надо заполнить
-
-
-https://github.com/user-attachments/assets/7066032a-4ecf-4077-9419-e0445c5accce
-
+![vqWYhq8S-W0](https://github.com/user-attachments/assets/c07d113a-92f0-4120-bee5-ca347d23a285)
